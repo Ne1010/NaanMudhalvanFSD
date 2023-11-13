@@ -30,4 +30,3 @@ PortFolio Website
 10. Engage with a Global Audience:
     - Reach a global audience, allowing individuals from around the world to discover and appreciate your work, potentially leading to international opportunities and collaborations.
 
-Having a portfolio website is a powerful tool that goes beyond a traditional resume, allowing you to tell your professional story and connect with opportunities on a broader scale.
